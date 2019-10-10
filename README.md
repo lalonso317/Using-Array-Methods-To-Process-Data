@@ -58,7 +58,7 @@ After completing this assignment, you be able to effectively use
   ```
   1970s Coors Banquet Glass Beer Pitcher
 
-  The Three Broomsticks Customizable Beer Stein Mug, Harry Potter Inspired, hogsmeade village, harry potter gift, three broomsticks mug
+   coloree Broomsticks Customizable Beer Stein Mug, Harry Potter Inspired, hogsmeade village, harry potter gift, three broomsticks mug
 
   Hand Painted Colorful Feather Glass
   ```
